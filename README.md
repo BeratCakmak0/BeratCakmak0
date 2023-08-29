@@ -1,2 +1,1 @@
-
-![github thumlaldenemei](https://github.com/BeratCakmak0/BeratCakmak0/assets/136619189/f341fbb4-a56e-4c70-80af-96e7efcdb05c)
+![github thumlaldenemei](https://github.com/BeratCakmak0/BeratCakmak0/assets/136619189/16369dfa-e6b7-4a50-9cd9-c80ff787f896)
