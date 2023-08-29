@@ -1,8 +1,6 @@
 
 
-
-![github thumlai](https://github.com/BeratCakmak0/BeratCakmak0/assets/136619189/9b17a31b-b9d5-4515-b4b7-7b31bfd1878c)
-
+![github thumlai](https://github.com/BeratCakmak0/BeratCakmak0/assets/136619189/3c30121b-2f06-4add-8040-6636234517a2)
 
 <!--
 **BeratCakmak0/BeratCakmak0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
