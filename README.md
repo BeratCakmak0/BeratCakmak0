@@ -1,5 +1,6 @@
 
-![github thumlai](https://github.com/BeratCakmak0/BeratCakmak0/assets/136619189/1ee7faf3-9fde-4912-ac95-6c7739c72c5c)
+
+![github thumlai](https://github.com/BeratCakmak0/BeratCakmak0/assets/136619189/e88ebd3b-d5d0-49c8-84f9-b0e7a7cf7082)
 
 
 <!--
